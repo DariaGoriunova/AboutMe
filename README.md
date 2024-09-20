@@ -7,3 +7,4 @@
 
 -За последний год посетила 7 стран
 
+![photo_2024-09-20_17-17-00](https://github.com/user-attachments/assets/03513618-06bf-46e4-a06b-57f39da8faad)
